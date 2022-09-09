@@ -1,4 +1,4 @@
-Top 10 Luxurious Hotels and Resorts in India
+                                                  Top 10 Luxurious Hotels and Resorts in India
  
 India is a traveler’s delight. There are countless locations to see and activities to engage in. There are various locations where you can visit and be utterly enthralled, whether it is the elegant Mughal constructions or the rustic Rajputana architecture, the snowy peaks, or the pleasant beaches. When you return to your hotel after a long day of sightseeing, all you want is comfort and a place to unwind. Your vacation experience is largely shaped by where you stay, right?
 
