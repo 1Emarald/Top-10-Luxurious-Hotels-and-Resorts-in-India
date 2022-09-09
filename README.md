@@ -34,5 +34,5 @@ India is home to many fantastic eco-friendly resorts, including the Wildernest N
 10. Glenburn Tea Estate, Darjeeling
 India is well-known for its fragrant tea, and the Darjeeling region is one of the greatest places to sample it. The Glenburn Tea Estate has suites decorated in opulent colonial style and is surrounded by stunning surroundings. In 1859, a Scottish tea business founded Glenburn, which was eventually transferred to the Chaiwalas, one of India's first families to plant tea. The tea you'll be drinking here is made from leaves that grow just outside your window, and you'll get cookies every morning to go with it.
 
-Summing up!!
+  Summing up!!
 Finally, we have discussed the top 10 hotels in India. This blog will help you to find a better hotel for your needs. Also, we are one of the top luxurious hotels in India. If you are looking for the best hotels in India you can contact us to book the finest hotels and resorts as per your requirements and comfortability
